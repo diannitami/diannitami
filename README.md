@@ -1,2 +1,2 @@
-👋 Hello world i'm Dian Nitami
+hai, i'm Dian Nitami
 
